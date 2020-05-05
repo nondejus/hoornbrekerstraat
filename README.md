@@ -1,2 +1,0 @@
-# hoornbrekerstraat
-de geconcentreerde waskracht
